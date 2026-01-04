@@ -1,2 +1,0 @@
-# Mini-E-Commece
-Betterway
